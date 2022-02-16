@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @Smorwin
 - 👀 I’m interested in Humanity
-- 🌱 I’m currently learning How to smile and be happy again
-- 💞️ I’m looking to collaborate on Idk
+- 🔭 I’m currently working on our company website! https://github.com/Paloftzer/Computer-Cube-Website
+- 🌱 I’m currently learning How to smile again
+- 🤔 I’m looking for help with Mental problems
+- 💬 Ask me about How I'm doing
 - 📫 How to reach me Just send a DM on discord idk SMORWIN#9756
-
-<!---
-Smorwin/Smorwin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 😄 Pronouns: Yes/daddy
+- ⚡ Fun fact: I know this guy @Paloftzer

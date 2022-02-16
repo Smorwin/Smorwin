@@ -5,5 +5,5 @@
 - 🤔 I’m looking for help with Mental problems
 - 💬 Ask me about How I'm doing
 - 📫 How to reach me Just send a DM on discord idk SMORWIN#9756
-- 😄 Pronouns: Yes/daddy
+- 😄 Pronouns: He/Him/Yes/daddy
 - ⚡ Fun fact: I know this guy @Paloftzer

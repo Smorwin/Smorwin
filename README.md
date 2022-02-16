@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Smorwin
+- 👋 Hi, I’m Marwin
 - 👀 I’m interested in Humanity
 - 🔭 I’m currently working on our company website! https://github.com/Paloftzer/Computer-Cube-Website
 - 🌱 I’m currently learning How to smile again
